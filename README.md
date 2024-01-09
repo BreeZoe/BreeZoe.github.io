@@ -1,5 +1,5 @@
 # WELCOME TO BreeZoe!
-###### Kindly visit our [website](https://learnwellwithbreez.wixsite.com/breezoe)
+###### Kindly visit our [website](https://learnwellwithbreez.wixsite.com/breezoe) and learn more about the ways in which we help The Real 'YOU'!
 
 #### Educational Services With a Novel Holistic Approach!
 
