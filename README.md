@@ -1,7 +1,7 @@
 # WELCOME TO BreeZoe!
-###### Kindly visit our [website](https://learnwellwithbreez.wixsite.com/breezoe) and learn more about the ways in which we help The Real 'YOU'!
+###### Kindly visit our [website](https://learnwellwithbreez.wixsite.com/breezoe) for the latest updates and learn more about the ways in which we help The Real 'YOU'!
 
-#### Educational Services With a Novel Holistic Approach!
+##### Educational Services Extended With a Novel Holistic Approach!
 
 Do you ever felt that You were the ODD 1 OUT in your study group?!
 
