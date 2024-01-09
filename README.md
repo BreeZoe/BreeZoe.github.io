@@ -2,4 +2,4 @@
 
 #### Educational Services With a Novel Holistic Approach!
 
-![theme2](https://github.com/BreeZoe/BreeZoe.github.io/assets/155627473/695c29fe-c230-4698-89a8-a7ed64c9fe3f)
+![cc](https://github.com/BreeZoe/BreeZoe.github.io/assets/155627473/b7aac424-03f6-491c-ba81-6f844e32ceee)
