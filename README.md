@@ -3,7 +3,7 @@
 
 ##### Educational Services Extended With a Novel Holistic Approach!
 
-#### Do you ever felt that You were the ODD 1 OUT in your study group?!
+## Did you ever felt that You were the ODD 1 OUT in your study group?!
 
 ###### Well, Then... We, at BreeZoe are there to Help You Learn to Enbrace The New "YOU" at SYNC with your SOUL to learn the Better Way!
 
