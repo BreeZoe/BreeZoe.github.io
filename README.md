@@ -11,5 +11,4 @@
 
 [Learn Well @BreeZoe.. Welcome to Your YouTube Channel.. Feel free to Click To Enter The New Way To Be The Real "YOU"!](https://www.youtube.com/@BreeZoeLearnWell)
 
-<img src="2.jpg" width="500" height="500"> 
 
